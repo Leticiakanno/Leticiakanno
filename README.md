@@ -1,7 +1,7 @@
 # sobre mim
 
 - 👋 Hi, I’m @Leticiakanno
-- gmail de contato: leticiakanno911@gmail.com
+- gmail de contato: [gmail](leticiakanno911@gmail.com)
 - 🌱 1 ano do ensino medio
 - 💞️ 15y
 - 📫 intituiçao de ensino; colegio estadual padre claudio morelli
